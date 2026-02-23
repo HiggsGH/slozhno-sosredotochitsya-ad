@@ -1,0 +1,1 @@
+https://github.com/HiggsGH/slozhno-sosredotochitsya-ad.git
